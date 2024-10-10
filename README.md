@@ -5,9 +5,9 @@
 - La primavera - Marina Rei 
 - In alto mare - Loredana bertè
 - Figli delle stelle - Alan Sorrenti 
-- Yes I know my way ( sax ) + superstition stevie wonder
 - Andamento lento
-- Si Viaggiare 
+- Si Viaggiare
+- Yes I know my way ( sax ) + superstition stevie wonder
 
 ## set disco
 
@@ -20,8 +20,8 @@
 - Shake you booty
 - Good times
 - Do you think I'm sexy
-- Lady - Modjo
 - [I wish - Stevie Wonder](https://youtu.be/8y_23ohvmoI?feature=shared) (sax)
+- Lady - Modjo
 
 -----
 - Phoenix if I ever feel better (pensiamoci)
