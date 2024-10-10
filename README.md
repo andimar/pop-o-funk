@@ -7,6 +7,7 @@
 - Figli delle stelle - Alan Sorrenti 
 - Andamento lento
 - Si Viaggiare
+- Gelosia - Dirotta su cuba
 - Yes I know my way ( sax ) + superstition stevie wonder
 
 ## set disco
