@@ -6,7 +6,7 @@
 - In alto mare - Loredana bertè
 - Figli delle stelle - Alan Sorrenti 
 - Andamento lento
-- Si Viaggiare
+- Si Viaggiare (do-)
 - Gelosia - Dirotta su cuba
 - Yes I know my way ( sax ) + superstition stevie wonder
 
