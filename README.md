@@ -13,7 +13,7 @@
 
 ## set disco
 
-- Treasure
+- [Treasure](https://www.youtube.com/watch?v=lGMw-XGpcfw)
 - Cosmic Girl - Jamiroquai
 - [Can't stop the feeling](https://www.youtube.com/watch?v=ru0K8uYEZWw) | [Adika pongo version](https://www.youtube.com/watch?app=desktop&v=JIlEocyaaRE)
 - Celebration 
