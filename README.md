@@ -20,7 +20,7 @@
 - September
 - Shake you booty
 - Good times
-- Do you think I'm sexy
+- [Do ya think I'm sexy](https://www.youtube.com/watch?v=Hphwfq1wLJs) | [Cover](https://www.youtube.com/watch?v=G8xvVPoVMKo)
 - [I wish - Stevie Wonder](https://youtu.be/8y_23ohvmoI?feature=shared) (sax)
 - Lady - Modjo
 - Spiller GrooveJet
