@@ -9,6 +9,7 @@
 - Si Viaggiare (do-)
 - Gelosia - Dirotta su cuba
 - [Yes I know my way](https://www.youtube.com/watch?v=zNuQ_x5-JsI) | [superstition stevie wonder](https://www.youtube.com/watch?v=ooVGZ-W14O8) | [sax](https://www.youtube.com/watch?v=0KyYntXJYDI)
+- [Levitating - Dua Lipa](https://www.youtube.com/watch?v=OVceB5ffuds) 
 
 ## set disco
 
