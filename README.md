@@ -8,7 +8,7 @@
 - Andamento lento
 - Si Viaggiare (do-)
 - Gelosia - Dirotta su cuba
-- Yes I know my way ( sax ) + superstition stevie wonder
+- [Yes I know my way](https://www.youtube.com/watch?v=zNuQ_x5-JsI) | [( sax ) + superstition stevie wonder](https://www.youtube.com/watch?v=ooVGZ-W14O8)
 
 ## set disco
 
