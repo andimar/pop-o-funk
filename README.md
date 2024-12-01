@@ -9,13 +9,14 @@
 - Si Viaggiare (do-)
 - Gelosia - Dirotta su cuba
 - [Yes I know my way](https://www.youtube.com/watch?v=zNuQ_x5-JsI) | [superstition stevie wonder](https://www.youtube.com/watch?v=ooVGZ-W14O8) | [sax](https://www.youtube.com/watch?v=0KyYntXJYDI)
-- [Levitating - Dua Lipa](https://www.youtube.com/watch?v=OVceB5ffuds) 
+- 
+Devil in me con le mani
 
 ## set disco
 
 - [Treasure](https://www.youtube.com/watch?v=lGMw-XGpcfw)
 - Cosmic Girl - Jamiroquai
-- [Can't stop the feeling](https://www.youtube.com/watch?v=ru0K8uYEZWw) | [Adika pongo version](https://www.youtube.com/watch?app=desktop&v=JIlEocyaaRE)
+- [Can't stop the feeling](https://www.youtube.com/watch?vru0K8uYEZWw) | [Adika pongo version](https://www.youtube.com/watch?app=desktop&v=JIlEocyaaRE)
 - Celebration 
 - [You and I - Delegation](https://youtu.be/D6MMZfbJp3w?feature=shared)
 - September
