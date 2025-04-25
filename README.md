@@ -24,17 +24,16 @@
 2,5min | Get Lucky                         | 🔵🔵🔵🔵⚪️ |
 2,5min | [Lady](https://www.youtube.com/watch?v=DX4P3r3-BVk) - Modjo                      | 🔵🔵🔵🔵🔵 |
 2,5min | [Groovejet (If This Ain't Love) - Spiller](https://www.youtube.com/watch?v=VOdgbRx4ihQ)    | ⚪️⚪️⚪️⚪️⚪️ |
-2,5min | Cosmic Girl - Jamiroquai           | 🔵🔵🔵🔵⚪️
-2,5min | About Damn Time – Lizzo           | ⚪️⚪️⚪️⚪️⚪️ |
+2,5min | Cosmic Girl - Jamiroquai           | 🔵🔵🔵🔵⚪️ | 
+2,5min | [About Damn Time](https://youtu.be/Il8H0idtQ04?feature=shared)– Lizzo           | ⚪️⚪️⚪️⚪️⚪️ |
 2,5min | [Gipsy Woman](https://www.youtube.com/watch?v=EVFx6eaL9gk) – Crystal Waters          | ⚪️⚪️⚪️⚪️⚪️ |
 2,5min | [Uptown funk](https://www.youtube.com/watch?v=7IJFln1zrNU)  - M.Ronson B.Mars    | ⚪️⚪️⚪️⚪️⚪️ |
 2,5min | Santa Allegria                    | ⚪️⚪️⚪️⚪️⚪️ | ( cassa ) -> (cassa)
 2,5min | I Will Survive - Gloria Gaynor    | 🔵🔵🔵🔵⚪️ | ( I will survive, oo ooo...) -> (...I got this feelings)
+2,5min | [Sing It Back](https://www.youtube.com/watch?v=pLZQTOiR5VA) - Moloko | 🔵🔵🔵🔵⚪️ |
+2,5min | [Murder on the dancefloor](https://www.youtube.com/watch?v=ezI3ZvhDiDU) - Moloko | 🔵🔵🔵🔵⚪️ |
 
-https://www.youtube.com/watch?v=B9QkVF9O8W0
-[Sing It Back](https://www.youtube.com/watch?v=pLZQTOiR5VA) - Moloko
-[Murder on the dancefloor](https://www.youtube.com/watch?v=ezI3ZvhDiDU)
-
+I got a feeling
   
 
 ## IN PANCHINA 
