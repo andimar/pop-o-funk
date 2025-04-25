@@ -24,6 +24,7 @@
 2,5min | Get Lucky                         | 🔵🔵🔵🔵⚪️ |
 2,5min | [Lady](https://www.youtube.com/watch?v=DX4P3r3-BVk) - Modjo                      | 🔵🔵🔵🔵🔵 |
 2,5min | [Groovejet (If This Ain't Love) - Spiller](https://www.youtube.com/watch?v=VOdgbRx4ihQ)    | ⚪️⚪️⚪️⚪️⚪️ |
+2,5min | Cosmic Girl - Jamiroquai           | 🔵🔵🔵🔵⚪️
 2,5min | About Damn Time – Lizzo           | ⚪️⚪️⚪️⚪️⚪️ |
 2,5min | [Gipsy Woman](https://www.youtube.com/watch?v=EVFx6eaL9gk) – Crystal Waters          | ⚪️⚪️⚪️⚪️⚪️ |
 2,5min | [Uptown funk](https://www.youtube.com/watch?v=7IJFln1zrNU)  - M.Ronson B.Mars    | ⚪️⚪️⚪️⚪️⚪️ |
@@ -41,7 +42,6 @@ https://www.youtube.com/watch?v=B9QkVF9O8W0
 | Durata | Pezzo | Livello | Transition |
 |--------|-------|---------|------------
 2,5min | [Yes I know my way](https://www.youtube.com/watch?v=zNuQ_x5-JsI) <br>   [superstition](https://www.youtube.com/watch?v=ooVGZ-W14O8) // [sax ref](https://www.youtube.com/watch?v=0KyYntXJYDI)| 🔵🔵⚪️⚪️⚪️
-2,5min | Cosmic Girl - Jamiroquai           | 🔵🔵🔵🔵⚪️
 2,5min | Gelosia - Dirotta su cuba          | ⚪️⚪️⚪️⚪️⚪️
 2,5min | Into The Groove (cover Madonna)   | ⚪️⚪️⚪️⚪️⚪️ |
 2,5min | [Do ya think I'm sexy](https://www.youtube.com/watch?v=Hphwfq1wLJs) // [Cover per prendere spunto ](https://www.youtube.com/watch?v=G8xvVPoVMKo) | ⚪️⚪️⚪️⚪️⚪️ |
