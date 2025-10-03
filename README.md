@@ -32,7 +32,6 @@
 2,5min | [Groovejet (If This Ain't Love) - Spiller](https://www.youtube.com/watch?v=VOdgbRx4ihQ)    | 🔵🔵🔵🔵🔵 |
 2,5min | [Murder on the dancefloor](https://www.youtube.com/watch?v=ezI3ZvhDiDU) - Moloko | ⚪️⚪️⚪️⚪️⚪️ |
 2,5min | Santa Allegria                    | 🔵🔵🔵⚪️⚪️ | ( cassa ) -> (cassa)
-
 2,5min | [Yes I know my way](https://www.youtube.com/watch?v=zNuQ_x5-JsI) <br>   [superstition](https://www.youtube.com/watch?v=ooVGZ-W14O8) // [sax ref] | ⚪️⚪️⚪️⚪️⚪️ |
 2,5min | No man no cry (Jimmy Sax) | 🔵⚪️⚪️⚪️⚪️ |
 
